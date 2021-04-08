@@ -1,1 +1,1 @@
-# slovetskiy-one.github.io-
+# slovetskiy-one.github.io
